@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @rattyhadders
+- 👀 I’m the guitarist in an excellent rock band called Spidercat
+- 🌱 I really am a cartoon rat!!
+- 📫 How to reach me: ratty@spidercat-band.com
